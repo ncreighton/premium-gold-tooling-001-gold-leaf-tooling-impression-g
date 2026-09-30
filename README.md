@@ -1,0 +1,2 @@
+# premium-gold-tooling-001-gold-leaf-tooling-impression-g
+Struggling to track which gold leaf impressions work best on different materials? Most tooling artists wing it—losing money on failed projects and wasted supplies. The Gold Leaf Tooling Impression Guide fixes that by giving you a documented system to test, record, and replicate perfect results every single time.  This Notion template transforms cha
